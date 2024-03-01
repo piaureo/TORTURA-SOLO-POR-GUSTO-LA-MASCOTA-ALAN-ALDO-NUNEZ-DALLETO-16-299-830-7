@@ -1,6 +1,6 @@
 ###################
 
-[url=https://www.piaureo.com][img]https://raw.githubusercontent.com/piaureo/EL-KARMA-TARDA-PERO-LLEGA-TODO-SE-DEVUELVE-LA-PRIORIDAD/main/piaureo-com-aiaureo-com-diaureo-com-pieureo-com-alan-0123456789-IMG-20210210-183516.jpg[/img][/url]
+![TENGO QUE HACER TODO YO CHUPENLO MALDITOS NO SE PROGRAMAR SON LA MIERDA DEL MUNDO AYUDAME A AYUDARTE](https://raw.githubusercontent.com/piaureo/EL-KARMA-TARDA-PERO-LLEGA-TODO-SE-DEVUELVE-LA-PRIORIDAD/main/piaureo-com-aiaureo-com-diaureo-com-pieureo-com-alan-0123456789-IMG-20210210-183516.jpg)
 
 
 https://github.com/piaureo/LA-MALA-SUERTE-Y-LA-BUENA-SUERTE-EL-GUION-EL-KARMA-TARDA-PERO-LLEGA-TODO-SE-DEVUELVE
@@ -94,5 +94,7 @@ https://raw.githubusercontent.com/piaureo/TORTURA-SOLO-POR-GUSTO-LA-MASCOTA-ALAN
 ![TENGO QUE HACER TODO YO CHUPENLO MALDITOS NO SE PROGRAMAR SON LA MIERDA DEL MUNDO AYUDAME A AYUDARTE](https://raw.githubusercontent.com/piaureo/EL-KARMA-TARDA-PERO-LLEGA-TODO-SE-DEVUELVE-LA-PRIORIDAD/main/Holy-www-pieureo-com-www-aiaureo-com-www-diaureo-com-www-piaureo-com.jpg)
 ![TENGO QUE HACER TODO YO CHUPENLO MALDITOS NO SE PROGRAMAR SON LA MIERDA DEL MUNDO AYUDAME A AYUDARTE](https://raw.githubusercontent.com/piaureo/EL-KARMA-TARDA-PERO-LLEGA-TODO-SE-DEVUELVE-LA-PRIORIDAD/main/github-beneficios-blog_og-01544a58-7dba-489a-9b10-857d21aef103.webp)
 ![TENGO QUE HACER TODO YO CHUPENLO MALDITOS NO SE PROGRAMAR SON LA MIERDA DEL MUNDO AYUDAME A AYUDARTE](https://raw.githubusercontent.com/piaureo/EL-KARMA-TARDA-PERO-LLEGA-TODO-SE-DEVUELVE-LA-PRIORIDAD/main/piaureo-com-aiaureo-com-diaureo-com-pieureo-com-alan-0123456789-IMG-20210210-183516.jpg)
+
+
 
 
